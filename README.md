@@ -1,0 +1,1 @@
+# DaVinci-Resolve-Studio-20-For-Mac
